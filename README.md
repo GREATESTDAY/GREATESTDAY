@@ -1,16 +1,16 @@
 <div align="center">
 
-wow
+; Call me Parrot Or Brandon, Check My pages for boundaries and such. Feel free to talk to me I guess.
 
 . - [StrawPage](https://Bachikins.straw.page) - . [Atabook](https://vampirebl00d.atabook.org/) - . . . 
 
 
-gauuahhh I love all my frieonddss!!!
+I'm prone to random outbursts and breakdowns please be patient with me
 
 ![](https://komarev.com/ghpvc/?username=HeavenPiercehim&+color=red&label=Iq)
 
 
-![image](https://i.pinimg.com/736x/1d/74/21/1d7421ac4dc417283780768987b49d7a.jpg)
+![image](https://i.pinimg.com/736x/ac/15/cc/ac15cc09ccb78133bcd1d204718066cd.jpg)
 
 
 
